@@ -1,4 +1,4 @@
-👋 Hi, I’m Martin Kušnír!
+👋 Hi, Everybody!
 
 Welcome to my GitHub profile! I am the proud owner of Appsite Ltd. (www.appsite.online) and have a background as a project manager and Scrum Master. My journey in the technology landscape has been truly rewarding, with a strong passion for the financial market being the driving force behind my work.
 
